@@ -1,4 +1,4 @@
-# 
+# Lightweight sandwich attack bot presets for Mac OS | Premium sandwich attack bot presets for PC Windows. Featuring blockchain indexing and private key management — optimized for maximum performance on every platform.
 
 
 
